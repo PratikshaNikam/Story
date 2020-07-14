@@ -1,1 +1,1 @@
-Once upon a time, there was a monkey, who lived on a jamun tree. Crocodile was his friend . 
+Once upon a time, there was a monkey, who lived on a jamun tree. Crocodile was his friend .  Monkey likes fruit .
